@@ -1,3 +1,3 @@
 # superchargerx
 
-https://shubhsheth.github.io/superchargerx/
+[https://superchargerx.com/](https://superchargerx.com/)
